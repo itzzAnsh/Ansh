@@ -8,13 +8,22 @@ Welcome to OTT ANSH™X, the ultimate destination for movie lovers who crave the
 - 📱 Stream Anytime, Anywhere – Compatible with Android devices for smooth, on-the-go viewing.
 - 🔍 Smart Search & Categories – Easily find trending titles, genres, and hidden gems.
 - 🚫 No Ads, No Interruptions – Enjoy uninterrupted entertainment with a clean, user-friendly interface.
-- 🎞️ HD Quality Streaming – Crisp visuals and immersive sound for the full cinematic experience.
-
+- 🎞️ HD Quality Streaming – Crisp visuals and immersive sound for the full cinematic experience
 Whether you're into action, romance, thrillers, or comedy, OTT ANSH™X has something fresh for everyone. Dive into a world of free entertainment and discover why thousands are switching to ANSH™X for their daily dose of movies
-
+    🤍OFFICIAL WEBSITE🤍 
+https://sites.google.com/view/anshxmod/home
 https://sites.google.com/view/anshxmod/home
 
 For more Relevant information ℹ️ 
 Join us on telegram 🚀🌟 
 
 https://t.me/Ansh04221
+https://t.me/Ansh04221
+
+❤️YOUTUBE❤️
+https://youtube.com/@ethicalansh?si=K7iqGZhP1N3up-Pa
+https://youtube.com/@ethicalansh?si=K7iqGZhP1N3up-Pa
+
+Thanks for Choosing Us 🔥 
+
+  🌟𝘼𝙪𝙩𝙝𝙤𝙧 𝘼𝙣𝙨𝙝™𝙓🌟
